@@ -20,7 +20,7 @@ Moreover, this theory is not only macrocosmic in perspective but also deeply rel
 
 - Why do we enjoy technological prosperity yet live such difficult lives?  
 - Why are we trapped in involution without creating value?  
-- Why do we付出 (sacrifice) so much but gain so little?  
+- Why do we sacrifice so much but gain so little?  
 - Why is it so hard to find a partner in love, while处处 (everywhere) we encounter pitfalls and live in fear?  
 - Why do we become the people we hate?  
 
@@ -50,7 +50,7 @@ This book draws on a large number of sources, with most arguments derived from t
 13. ***Super Cooperators: Evolution, Altruism, and Why We Need Each Other* **, Martin A. Nowak, Roger Highfield, trans. CITIC Press, 2013  
 14. ***Sapiens: A Brief History of Humankind***, Yuval Noah Harari, trans. Lin Junhong, CITIC Press, 2014  
 15. ***The Religion of Man***, Rabindranath Tagore, publication year unknown  
-16. ***潜规则：中国历史中的真实游戏* (Hidden Rules: The Real Game in Chinese History)**, Wu Si, Fudan University Press, 2016  
+16. ***Hidden Rules: The Real Game in Chinese History**, Wu Si, Fudan University Press, 2016  
 17. ***60,000 Years of Humanity: The Genetic History of Mankind***, Zhang Zhen, Li Hui, Shanghai Literature and Art Publishing House, 2021  
 18. ***The Naked Ape Trilogy***, Desmond Morris, trans. He Daokuan, Fudan University Press, 2010  
 19. ***The Protestant Ethic and the Spirit of Capitalism***, Max Weber, trans. Yu Xiao, Chen Weigang, Joint Publishing, 1987  
