@@ -1,6 +1,3 @@
-# Adversarial-Evolution-en
-
-
 # Creative Background  
 
 In recent years, human science and technology have made remarkable progress, entering an era of technological singularity. However, our spiritual civilization and sense of well-being have deteriorated. Anxiety and feelings of emptiness have increased rather than decreased, with negative factors accumulating covertly and the laws of rise and fall quietly repeating...  
